@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+I am currently a freshman at the University of South Florida pursuing a Bachelor of Science in Finance with a concentration in Investment Analysis. I have experience in a variety of leadership roles, including my time in the JROTC and Scouting programs, where I earned the rank of Eagle Scout. Due to this experience, I've developed strong skills in teamwork, communication, and problem-solving while managing large groups of children, peers, and community members in both professional and volunteer settings. Looking ahead, I aim to leverage my academic foundation, leadership experience, and passion for service to build a career in finance while continuing to make a positive impact in my community.
 <!--
 **Michael-A-Wagner/Michael-A-Wagner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
